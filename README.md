@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mr.fivem.dev@gmail.com**
 
-- 📄 Know about my experiences [https://hyperscripts.tebex.io/](https://hyperscripts.tebex.io/)
+- 📄 Know about my experiences [https://hyperscriptss.tebex.io/](https://hyperscripts.tebex.io/)
 
 - ⚡ Fun fact **I Think I am Happy**
 
